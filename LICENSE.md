@@ -1,4 +1,4 @@
-# 
+# Best Smallpdf Desktop tools for Mac OS | Automatic Smallpdf Desktop tools for PC Windows. Featuring integration with accounting and digital signatures — optimized for maximum performance on every platform.
 
 
 
